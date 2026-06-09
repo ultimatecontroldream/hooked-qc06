@@ -1,4 +1,4 @@
-#  
+#  custom Script for hooked offers the most advanced hooked Script, with instant win and silent aim. Perfect for dominating any match.
 
 
 
